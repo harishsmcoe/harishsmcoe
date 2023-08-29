@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Python**
 
-- ⚡ Fun fact **Girls loves me**
+- ⚡ Fun fact **trust all**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
